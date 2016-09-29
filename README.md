@@ -1,1 +1,1 @@
-el readme dagos ;)
+Ignacio Eguiazu, Franco Gelmetti.
